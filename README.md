@@ -14,16 +14,16 @@ Socials:
 
 Music
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 [SoundCloud](https://soundcloud.com/vivzio)
 [Spotify](https://open.spotify.com/artist/5ueTutghbZhxS2yIAY7lbs?si=5vloksK3SI6jJQzjxfyk_g)
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 Main
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 [Twitter](https://twitter.com/literallyvivzio)
 [YouTube](https://youtube.com/@vivzio)
@@ -31,4 +31,4 @@ Main
 [Instagram](https://instagram.com/vivzio)
 [Discord](https://discord.com/users/1372365589082935456)
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
