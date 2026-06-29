@@ -12,8 +12,6 @@ If you wanna work on a Python project together (I'm best at Roblox macros and Di
 
 ## Socials
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-
 ### Music
 
 [SoundCloud](https://soundcloud.com/vivzio)
@@ -31,5 +29,3 @@ If you wanna work on a Python project together (I'm best at Roblox macros and Di
 [Instagram](https://instagram.com/vivzio)
 
 [Discord](https://discord.com/users/1372365589082935456)
-
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
