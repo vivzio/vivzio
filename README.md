@@ -10,21 +10,17 @@ The most notable project of mine is the "Meowl" Discord bot. I worked on that fo
 
 If you wanna work on a Python project together (I'm best at Roblox macros and Discord bots), I'd be glad to! If you want to contact me, you can reach me via [Twitter](https://twitter.com/literallyvivzio) or [Discord (@vivzio)](https://discord.com/users/1372365589082935456)!
 
-Socials:
+## Socials
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
-Music
+### Music
 
 [SoundCloud](https://soundcloud.com/vivzio)
 
 [Spotify](https://open.spotify.com/artist/5ueTutghbZhxS2yIAY7lbs?si=5vloksK3SI6jJQzjxfyk_g)
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-
-Main
+### Main
 
 [Twitter](https://twitter.com/literallyvivzio)
 
